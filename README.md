@@ -1,5 +1,5 @@
-- 👋 I’m @nfbarnes
-- 👀 ...interested in humans doing human things
+- 👋 I’m @nfbarnes (@bynikkibarnes on other platforms)
+- 👀 ...interested in humans humaning
 - 🌱 I’m currently studying digital humanities
 - 💞️ I’m looking to collaborate 
 - 📫 to reach out to me: @bynikkibarnes
